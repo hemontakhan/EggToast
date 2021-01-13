@@ -1,0 +1,1 @@
+Stir egg,chilli and onion in  glass.Then put a pan in oven and lay the mixture on it.Take a glass bread cut it in two pieces and place it on the oven and let it for 2 minutes.Then your dish is ready to serve.

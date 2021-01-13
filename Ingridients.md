@@ -1,0 +1,1 @@
+Egg,Glass bread,Oninon pieces, 1 piece Chili,salt. 
